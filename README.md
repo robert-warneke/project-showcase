@@ -6,6 +6,6 @@ View my portfolio at https://robertwarneke.com
 
 Email me at contact@robertwarneke.com with comments, questions, concerns, etc.
 
-Thanks for your time!
+Thank you for your time!
 
 -Robert Warneke-
