@@ -2,6 +2,6 @@
 
 A collection of various personal projects to showcase for my portfolio.
 
-https://robertwarneke.com
+View my portfolio at https://robertwarneke.com
 
-contact@robertwarneke.com
+Email me at contact@robertwarneke.com with comments, questions, concerns, etc.
