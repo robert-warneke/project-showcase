@@ -6,6 +6,8 @@ View my portfolio at https://robertwarneke.com
 
 Email me at contact@robertwarneke.com with comments, questions, concerns, etc.
 
+Visit my LinkedIn at https://linkedin.com/in/robert-warneke
+
 Thank you for your time!
 
 -Robert Warneke-
