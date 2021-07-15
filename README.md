@@ -1,6 +1,6 @@
 # project-showcase
 
-This repository is a collection of my various personal projects that I have chosen to showcase for my portfolio.
+This repository is a collection of my various projects that I have chosen to showcase for my portfolio.
 
 View my portfolio at https://robertwarneke.com
 
